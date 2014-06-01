@@ -1,4 +1,0 @@
-ruthlesscommi
-=============
-
-Contradiction
